@@ -9,5 +9,5 @@ finally i have ate machurian.
 
 
 Welcome to vedants kitchen
-dal fry
-
+jeera rice
+completed
